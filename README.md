@@ -1,0 +1,1 @@
+Yo wsp Top Gś.
